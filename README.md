@@ -4,15 +4,15 @@
 
 - Ingredientes:
 
-  *  1 taza grande
-  *  4 cucharadas de harina
-  *  4 cucharadas de azúcar
-  *  2 cucharadas de cacao
-  *  1 huevo grande
-  *  3 cucharadas de leche
-  *  3 cucharadas de aceite
-  *  1/4 de taza de trozos de chocolate (más o menos grandes)
-  *  1 chorro pequeño de extracto de vainilla
+  *  2 taza grande
+  *  8 cucharadas de harina
+  *  8 cucharadas de azúcar
+  *  4 cucharadas de cacao
+  *  2 huevo grande
+  *  6 cucharadas de leche
+  *  6 cucharadas de aceite
+  *  1/2 de taza de trozos de chocolate (más o menos grandes)
+  *  2 chorro pequeño de extracto de vainilla
 
 ## Cómo hacer el bizcocho microondas o Mug cake en 3 minutos:
 
